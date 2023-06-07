@@ -1,1 +1,1 @@
-My first readme
+No time to play
